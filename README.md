@@ -1,6 +1,6 @@
 I'm ✨MegasterPro✨
 
-Link to my Team www.bright-coders.netlify.app 
+Link to my Team https://bright-coders.netlify.app 
 @DarkCoder
 
 <!---
