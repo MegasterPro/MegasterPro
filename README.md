@@ -30,7 +30,7 @@ Je suis toujours ouvert à la collaboration et à l'apprentissage de nouvelles c
 ## Suivez-moi
 
 - [MyFriends](https://bright-coders.netlify.app)
-- [Twitter](lien_vers_Twitt)
+- [Twitter](https://x.com/MegasterPro)
 - [Instagram](Oublie_pas_le_lien_idiot)
 - [Youtube](https://www.youtube.com/@CNKDarknight)
 
